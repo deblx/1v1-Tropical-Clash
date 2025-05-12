@@ -12,6 +12,8 @@ Welcome to a deserted island where only the best survive! In Island Showdown, yo
 
 🕵️‍♂️ Mysterious secrets waiting to be discovered
 
-Play here: https://www.fortnite.com/@deblx
-
+🌐: https://www.fortnite.com/@deblx
+🎮 Code: 7693-0117-3628
 Are you ready to take on the ultimate island duel? Prove your skills and become the king of the island! 🏆💥
+
+![1v1tropicalclashpicture](https://github.com/user-attachments/assets/c6e37eb6-777d-48d0-9a62-061db46f6141)
